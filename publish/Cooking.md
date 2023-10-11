@@ -6,6 +6,4 @@ Some of my recipes:
 
 [[Whitman's Tiramisu]]
 
-[[linked/publish/Whitman's Focaccia]]
-
-[[Sheet-Pan Gochujang Chicken and Roasted Vegetables Recipe - NYT Cooking.pdf]]
+[[Whitman's Focaccia]]
