@@ -1,9 +1,11 @@
 This is a rough outline of a recipe inspired by my typical lunch order at[ Dig (formerly Dig Inn)](https://en.wikipedia.org/wiki/Dig_(restaurant))
-When getting lunch in manhattan, this was one of the healthiest and most satisfying meals I could put together. It's 3 basic parts:
+When getting lunch in manhattan, this was one of the healthiest and most satisfying meals I could put together. I ended up getting it for lunch so often I made it at home. I ended up making it at home so often I began referring to it as 'the meal', at one point being a solid plurality of my meals. 
+
+It's 3 basic parts:
 
 - Chicken breast, optionally coated in a mix of gochujang & honey
 - Sweet potatoes seasoned with yuzu kosho and a spice blend
-- brussels sprouts tossed in olive oil and chili flakes
+- Brussels sprouts tossed in olive oil and chili flakes
 
 Optionally, you can add brown rice or quinoa as a base.
 
