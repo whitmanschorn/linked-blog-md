@@ -6,4 +6,4 @@ I graduated Oberlin College in 2013, majoring in Computer Science and Creative W
 
 I enjoy writing, technology, and the intersection of the two. 
 
-If you want to know me, the written word is a great place to start. If you don't want to read me, you can check out some of my favorite [[Books]], my adventures in [[Cooking]]
+If you want to know me, this site is great place to start. You can check out some of my favorite [[Books]], what I'm watching on [[Youtube]], see my recipes in [[Cooking]], or just generally peruse. 
