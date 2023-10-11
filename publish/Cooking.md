@@ -1,6 +1,6 @@
 I enjoy cooking. 
 
-Some of my favorite things to make include fish, bread, and anything Italian. 
+Some of my favorite things to make include dishes with fish, bread, and anything Italian. 
 
 Some of my recipes: 
 
