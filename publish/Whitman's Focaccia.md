@@ -10,7 +10,7 @@ Ingredients
 
 
 1. Put the yeast and sugar in a large mixing bowl.  Stir in warm water gently and wait 10 minutes
-	1. Mix in flour and sea salt, knead a bit for the gluten gods 
+1. Mix in flour and sea salt, knead a bit for the gluten gods 
 2. Cover with plastic and rest overnight in the fridge
 3. Line two half baking sheets with parchment paper and olive oil
 4. Add dough to sheets, cover loosely and let rise for 2 hours
