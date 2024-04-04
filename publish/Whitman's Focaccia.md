@@ -10,12 +10,12 @@ Ingredients
 
 
 1. Put the yeast and sugar in a large mixing bowl.  Stir in warm water gently and wait 10 minutes
-2. Mix in flour and sea salt
-3. Cover with plastic and rest overnight in the fridge
-4. Line two half baking sheets with parchment paper and olive oil
-5. Add dough to sheets, cover loosely and let rise for 2 hours
-6. Preheat oven to 450
-7. Press dough to corners and make finger dents :) drizzle with olive oil and add sea salt and rosemary
-8. Bake roughly 25 minutes
-9. Microwave butter, gatlic, and herbs until mixed, brush on top for a sheen
-10. Let cool for 5 minutes in the pan before moving onto a cooilng rack
+	1. Mix in flour and sea salt, knead a bit for the gluten gods 
+2. Cover with plastic and rest overnight in the fridge
+3. Line two half baking sheets with parchment paper and olive oil
+4. Add dough to sheets, cover loosely and let rise for 2 hours
+5. Preheat oven to 450
+6. Press dough to corners and make finger dents :) drizzle with olive oil and add sea salt and rosemary
+7. Bake roughly 25 minutes
+8. Microwave butter, gatlic, and herbs until mixed, brush on top for a sheen
+9. Let cool for 5 minutes in the pan before moving onto a cooilng rack
