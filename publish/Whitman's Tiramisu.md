@@ -4,6 +4,9 @@ Ingredients
 Mascarpone
 Sugar
 Eggs
+Cream
+Almond milk
+Vanilla
 
 Pull 5 double shots of espresso
 
@@ -14,7 +17,7 @@ Pour a shot of bourbon. Throw half into the mixture and have the other half for 
 Add 250-300g mascarpone, whip until smooth and fluffy
 
 
-Whip 2 cups of cream in the vitamix, add into the bowl
+Whip 2 cups of cream in the blender, add into the bowl
 
 Now, add 1/2 cup of almond milk to the espresso,
 Crush up a bag of chocolate-covered pretzels,
@@ -31,8 +34,6 @@ And you're done!
 
 Let chill overnight in the fridge. 
 
-Maybe next time add vanilla?
-I used egg whites based on a recipe but I don't think that is as good as whipped cream
 
 
 
